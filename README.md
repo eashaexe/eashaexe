@@ -28,8 +28,6 @@ I’m passionate about **solving problems creatively, learning new tools**, and 
 
 ---
 
-<p align="center">  
-🌷 *Soft code, strong impact.* 🌷  
-</p>  
+
 
 <!-- Aesthetic profile crafted with ✨ love & GPRM ( https://gprm.itsvg.in ) -->
