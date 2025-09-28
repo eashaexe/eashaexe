@@ -1,4 +1,4 @@
-#  Eashitha Jithu
+# Hi,I'm Eashitha Jithu
 
 🎓 Final-year Engineering Student 
 
